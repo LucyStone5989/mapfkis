@@ -1,0 +1,2 @@
+# mapfkis
+Mondratex App Przegląd 2025 - Funkcje, korzyści i spostrzeżenia
